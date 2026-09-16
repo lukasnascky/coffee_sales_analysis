@@ -31,4 +31,4 @@ Developed by **Lucas da Silva Nascimento** - [@lukasnascky](https://github.com/l
 
 - ✉️ Email: [lucas.nascimento@rede.ulbra.br](mailto:lucas.nascimento@rede.ulbra.br)  
 - 📷 Instagram: [@lukas_nascky](https://www.instagram.com/lukas_nascky/)  
-- 💼 LinkedIn: [Lucas da Silva Nascimento](https://www.linkedin.com/in/lucas-da-silva-nascimento-1720302a3/)
+- 💼 LinkedIn: [Lucas da Silva Nascimento](www.linkedin.com/in/lukasnascky)
